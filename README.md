@@ -6,7 +6,7 @@ I am a lonely person who love to find the fun of Android Root and Windows softwa
 
 ## 🚀 Visitor Count：
 
-![moe-counter](https://count.getloli.com/@woxile233?name=woxile233&theme=booru-lewd&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)
+![moe-counter](https://count.getloli.com/@woxile233?name=woxile233&theme=booru-lewd&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)<br>
 （里面有好多数字是我调试的时候刷的qwq）
 
 ## 🌍 Sites
