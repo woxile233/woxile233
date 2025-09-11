@@ -1,4 +1,4 @@
-# 👋 Hi there (っ•̀ω•́)っ ⭐
+# 👋 Nice to 汐 you~ (っ•̀ω•́)っ ⭐
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lemon&pause=1000&color=F79117&center=%E7%9C%9F&vCenter=%E7%9C%9F&repeat=%E7%9C%9F&random=%E5%81%87&width=435&lines=Nice+to+xi+you+!)](https://git.io/typing-svg)
 
